@@ -1,3 +1,3 @@
-We couldn't get the .com but we have
+We're an improv team out of NYC!
 
-# Great Personalities
+That's probably obvious at this point.
